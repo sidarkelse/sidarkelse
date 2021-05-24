@@ -7,7 +7,7 @@
 
 
 - 🌱 I’m currently learning everything 🤣
-- ⚡ Fun fact: I love to play chess and play play instruments
+- ⚡ Fun fact: I love to play chess and  play instruments
 
 ### Spotify Playing 🎧
 
