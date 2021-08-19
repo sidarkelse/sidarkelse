@@ -6,7 +6,7 @@
 ## I'm alone, Developer, and I like to listen music 
 
 
-- 🌱 I’m currently learning everything 🤣
+- 🌱 I’m currently learning everything
 - ⚡ Fun fact: I love to play chess and  play instruments
 
 ### Spotify Playing 🎧
