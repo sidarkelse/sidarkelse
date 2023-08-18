@@ -3,7 +3,7 @@
 
 
 
-## I'm alone, Developer, and I like to listen music 
+## Developer and I like to listen music(Coffe) 
 
 
 - 🌱 I’m currently learning everything
